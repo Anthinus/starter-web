@@ -13,3 +13,6 @@ Las morsas apretaditas bailan tango a la luz de las velas.
 Y se rien de Claudio que no sabe bailar conga.
 
 ## Mokuba
+
+Hermano de Seto Kaiba. Super extra.
+Super trucho.
