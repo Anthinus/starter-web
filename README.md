@@ -16,3 +16,7 @@ Y se rien de Claudio que no sabe bailar conga.
 
 Hermano de Seto Kaiba. Super extra.
 Super trucho.
+
+## Copyright
+
+Me pertenence CARAJO
