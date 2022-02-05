@@ -21,3 +21,4 @@ Super trucho.
 ## Copyright
 
 Me pertenence CARAJO
+All rights reserved
